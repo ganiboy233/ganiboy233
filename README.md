@@ -1,6 +1,6 @@
 ## Halo, saya Firman Gani Putra Satriyo 🤚 <br>
 
-<img src="
+<img src="GIF by MotoGP.gif">
 
 🏫Mahasiswa S1 Informatika Universitas Muhammadiyah Surabaya Semester 1
 
